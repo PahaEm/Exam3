@@ -1,3 +1,3 @@
 # Exam3
 
-Nothing interesting, just studiing.
+Nothing interesting, just studying.
